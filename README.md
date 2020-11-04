@@ -1,2 +1,1 @@
-# anjayani
-anjayani oyyy
+powered by st4rz
